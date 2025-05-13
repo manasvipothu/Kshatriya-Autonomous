@@ -1,1 +1,1 @@
-# Kshatriya-Autonomous
+# Kshatriya
